@@ -1,7 +1,7 @@
 - Um jovem com muito conhecimento que vai mudar sua vida.
 
-✨  **Discord:** Chefão#0003
-✨  **Instagram:** dychefao
+✨  **Discord:** Chefão#0001
+✨  **Instagram:** 
 
 <!---
 motsdev/motsdev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
